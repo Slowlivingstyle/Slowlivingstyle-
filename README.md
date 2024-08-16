@@ -1,3 +1,2 @@
-# Slowlivingstyle-
-teste 123
-gg game ez
+# Slowlivingstyle- COMO PODEMOS OBTER?
+
